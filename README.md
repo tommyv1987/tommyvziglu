@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @tommyvziglu
+- 👀 I’m interested in Crypto and Quality Assurance
